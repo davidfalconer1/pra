@@ -1,4 +1,4 @@
-Havent managed to complete everything, but got what I could done in 4 hours. 
+Haven't managed to complete everything, but got what I could done in 4 hours. 
 
 Things to note.
 
